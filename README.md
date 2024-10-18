@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @C-Nathan-ui
+- 👀 I’m interested in Learning Programming.
+- 🌱 I’m currently learning Java and C Language.
+- 💞️ I’m looking for someone to help me become more aware to programming.
+- 📫 Message me if you want to be my senior
+- 😄 Pronouns: Straight
+- ⚡ Fun fact: I'm bad at learning but i have a patient to learn.
